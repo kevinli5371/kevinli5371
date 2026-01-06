@@ -1,5 +1,8 @@
-## Hi there 👋
+## hi my name is kevin 🔥
+i like to make things and hit balls (play volleyball)
 
+follow me on X to see what im up to
+https://x.com/kevinsnmszt 
 <!--
 **kevinli5371/kevinli5371** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
