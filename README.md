@@ -1,5 +1,7 @@
 ## hi my name is kevin 🔥
-i like to build things that make my life easier and hit balls (play volleyball)
+i like to build things that make my life easier 
+
+oh and i like to hit balls (i play volleyball)
 
 follow me on X to see what im up to
 https://x.com/kevinsnmszt 
